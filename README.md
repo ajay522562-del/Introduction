@@ -6,4 +6,4 @@ The induction began with a warm welcome in the beautifully decorated auditorium,
 the host invited the first speaker, Harpreet Mam. Her lecture made us feel like we were already a part of the GNDEC family.
 
 Our Principal Sir then motivated us to make the best use of this platform. The  introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds.
-
+dr.akshay girdhar(deen academic):
