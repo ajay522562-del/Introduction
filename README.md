@@ -20,6 +20,7 @@ Then our Honourable Principal Sir warmly welcomed us with his speech, he told us
 
 ## special thanks to our guest honour:
 .Er ravindra garg - chief engineer, municipal corporation, ludhiana 
+
 .Er rakesh kumar -GNDEC alumnus (batch 1991),ADC ludhiana 
  
  Our induction ended at 3:40 pm.
