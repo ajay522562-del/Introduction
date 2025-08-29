@@ -18,6 +18,7 @@ She gave a speech about being persistent, motivated, being patient, and doing ha
 
 Then our Honourable Principal Sir warmly welcomed us with his speech, he told us explore all the new opportunities that comes in our way.
 
+## special thanks to our guesoof honour 
  
 Our induction ended at 3:40 pm.
 
