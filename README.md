@@ -18,10 +18,11 @@ She gave a speech about being persistent, motivated, being patient, and doing ha
 
 Then our Honourable Principal Sir warmly welcomed us with his speech, he told us explore all the new opportunities that comes in our way.
 
-## special thanks to our guesoof honour 
+## special thanks to our guest honour:
+.Er ravindra garg - chief engineer, municipal corporation, ludhiana 
+.Er rakesh kumar -GNDEC alumnus (batch 1991),ADC ludhiana 
  
-Our induction ended at 3:40 pm.
-
+ Our induction ended at 3:40 pm.
 
 
 <h1>Day 2</h1>
