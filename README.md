@@ -40,4 +40,23 @@ After completion of our test, we had to go to the auditotrium for 2 lectures.
 <br> One of the lecture was taken by Dr. Priyadarshini Mam about Human relationships. 
 She was explaining the difference between excitement and happiness. She also gave us a home assignment.
 
+# day 3
 
+From 9:30 am, we had our English class by Aastik Sharma Sir.<br>
+Then we had our second class of chemistry by Karan Bhalla Sir.<br>
+Then we had to go to the auditorium.
+One of the session was taken by Causmic Club of our college.
+
+# day 4 
+
+
+## 9:30 am to 11:30am ## 
+
+A wonderful lecture has been started by Dr. Priyadarshni maam Human value and  importance of life.
+She taught us the lesson of how to develop right understanding, Relationship and Physical activity.
+<br>
+11:30 to 1:30pm
+<br>
+<h1></h1>Causmic Club
+In this club we have to explain by our seniors  explained that there are the lots of talent,personal development ,self confidence to develop their skills for personal development.
+End the class.
