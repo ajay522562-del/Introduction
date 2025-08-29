@@ -26,11 +26,13 @@ Then our Honourable Principal Sir warmly welcomed us with his speech, he told us
  Our induction ended at 3:40 pm.
 
 
-<h1>Day 2</h1>
-## 9:30 to 10:30 ##
+# day 2
+
+## 9:30 to 10:30am ##
 
  we had English proficiency test.
-## 10:30 to 11:30 ##
+ 
+## 10:30 to 11:30am ##
 
  we had a Maths proficiency test.
  
