@@ -27,8 +27,11 @@ Then our Honourable Principal Sir warmly welcomed us with his speech, he told us
 
 
 <h1>Day 2</h1>
-From 9:30 am we had English proficiency test.
-<br> And from 10:30 am, we had a Maths proficiency test. <br>
+## 9:30 to 10:30 
+ we had English proficiency test.
+## 10:30 to 11:30 
+ we had a Maths proficiency test.
+ 
 After completion of our test, we had to go to the auditotrium for 2 lectures. 
 <br> One of the lecture was taken by Dr. Priyadarshini Mam about Human relationships. 
 She was explaining the difference between excitement and happiness. She also gave us a home assignment.
