@@ -64,3 +64,8 @@ End the class.
 ## day 5 
 
 Id card formation (outside tcc sem hall)
+
+# day 6 
+
+
+
